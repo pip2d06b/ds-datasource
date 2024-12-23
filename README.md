@@ -16,3 +16,13 @@
 - [新界東村屋買樓｜包含新界東區放售中的樓盤 - 宅谷地產資訊網](https://www.property.hk/buy/a3d300o6t6w1/)
 
 - https://www.demographia.com/dhi.pdf
+
+
+- Crime Data
+- [罪案數字比較 | 香港警務處](https://www.police.gov.hk/ppp_en/09_statistics/csc.html)
+- [詳細罪案統計 | 香港警務處](https://www.police.gov.hk/ppp_en/09_statistics/csd.html)
+- [各總區的罪案數字 | 香港警務處](https://www.police.gov.hk/ppp_tc/09_statistics/map.html)
+- [交通統計數字 | 香港警務處](https://www.police.gov.hk/ppp_tc/09_statistics/tes_2024.html)
+- [屯門區議會會議罪行報告](https://www.districtcouncils.gov.hk/tm/doc/2024_2027/en/dc_meetings_doc/26533/dc_2024_012_en.pdf)
+- [2024年上半年治安情況](https://www.info.gov.hk/gia/general/202408/10/P2024081000274.htm)
+- https://www.districtcouncils.gov.hk/tw/doc/2024_2027/sc/dc_meetings_doc/27505/TWDC_Paper_No_2_2425_Annex.pdf-==****
